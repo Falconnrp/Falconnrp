@@ -1,0 +1,3 @@
+- 👋 Hola, soy falconnrp, me puedes llamar falcon
+- 👀 Suelo hacer script para fivem
+- 🌱 Si me aburro pues no hago na
